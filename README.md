@@ -14,5 +14,5 @@ Degree of Instructor in Sculpture and Ceramic Sculpture.
 Makes works of animation.
 Collaborates with animators in India and England
 Lives in Givatayim
-Member of the Givatayim Gold Movement
-A great group that does good for Givatayim retirees
+A member of the Golden Movement of Givatayim
+A great group that does good for Givataim retirees
